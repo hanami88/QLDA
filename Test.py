@@ -1,0 +1,1 @@
+# code hàm chẳn legi
